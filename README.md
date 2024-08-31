@@ -1,1 +1,0 @@
-# Malzip-Cookbook-Shop
